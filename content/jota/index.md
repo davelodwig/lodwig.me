@@ -18,5 +18,27 @@ Scouts taking part in the course and completing their workbook will be awarded t
 
 ## Booking
 
-To book a space on this years course, complete the form here. The course is limited to 20 participants and costs £40 which includes meals and activities. 
+To book a space on this years course, complete the [form here](https://docs.google.com/forms/d/e/1FAIpQLSc3bYiUmxPqx0dAjrzJh53LBQJvTu9u9XXu106ZLHKmGFIwXA/viewform). The course is limited to 20 participants and costs £40 which includes meals and activities. Payment can be made by cheque or bank transfer.
+
+Cheques should be made payable to "Gloucestershire Scouts" and posted to 
+
+David Lodwig, 
+15 Frithwood Park,
+Stroud,
+Gloucestershire
+GL6 8AB
+
+Alternatively payments can be made by BACS transfer
+
+Account Number: 66586399
+Sort Code: 55-61-08
+Account Name: Gloucestershire County Scout Council Activities Account
+
+**Please include name and badge course with payment.**
+
+
+
+
+
+ 
 
